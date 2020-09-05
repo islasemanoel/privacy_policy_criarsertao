@@ -1,4 +1,4 @@
-# privacy_policy_criarsertao
+# Privacy Policy of CriarSertão Apps
 Privacy Policy
 
 CriarSertão built the José da Silva app as a Free app. This SERVICE is provided by CriarSertão at no cost and is intended for use as is.
